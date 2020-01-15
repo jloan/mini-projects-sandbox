@@ -50,7 +50,11 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 >The pain is unbearable, but you continue making the incision / With drill in hand, you find the seed of the demon inside / Blood spews over the walls as you drill deeper... 
 
-## Step 5: Practice the song and work out the details. 
+## Step 5: You gotta add some cowbell
+
+>I got a feva and the only prescription is more cowbell.
+
+## Step 6: Practice the song and work out the details. 
 
 ![Practice!](https://github.com/jloan/mini-projects-sandbox/blob/master/e235/heavy-metal/3.jpg)
 
