@@ -38,7 +38,7 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 ![Guitar!](https://github.com/jloan/mini-projects-sandbox/blob/master/e235/heavy-metal/4.jpg)
 
-**If you've got a lead guitarists, now is the time to add some lead guitar melodies to your song.** It's best to try to find guitar melodies that compliment the vocal melody, and don't get in the way of it. 
+**If you have a lead guitarist, now is the time to add some lead guitar melodies to your song.** It's best to try to find guitar melodies that compliment the vocal melody, and don't get in the way of it. 
 
  Write the lyrics. Metal music deals with a wide variety of topics when it comes to lyrics. You can write about just about any subject. A good general rule of thumb for writing metal lyrics is to keep the themes simple, and the imagery and metaphors interesting.[4]
 
