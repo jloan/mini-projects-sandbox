@@ -49,7 +49,11 @@ Have a dream of being in a successful metal band but don't know how to start? Th
 
 >The pain is unbearable, but you continue making the incision / With drill in hand, you find the seed of the demon inside / Blood spews over the walls as you drill deeper... 
 
-## Step 5: Practice the song and work out the details. 
+## Step 5: You gotta add some cowbell
+
+>I got a feva and the only prescription is more cowbell.
+
+## Step 6: Practice the song and work out the details. 
 
 ![Practice!](https://www.google.com/imgres?imgurl=https%3A%2F%2Fdidgeproject.com%2Fwp-content%2Fuploads%2F2017%2F01%2Fbetter-drummer-how-to-dave-grohl.jpg&imgrefurl=https%3A%2F%2Fdidgeproject.com%2Fpercussion%2Fbecoming-a-better-drummer%2F&docid=jmQDUlQaN5PvvM&tbnid=F-vfImYu8ZhefM%3A&vet=10ahUKEwjItJTi4IbnAhUErZ4KHaYKBbgQMwh2KA0wDQ..i&w=1200&h=816&bih=510&biw=1163&q=heavy%20metal%20drummer%20practicing&ved=0ahUKEwjItJTi4IbnAhUErZ4KHaYKBbgQMwh2KA0wDQ&iact=mrc&uact=8)
 
